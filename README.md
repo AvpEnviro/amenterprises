@@ -1,2 +1,0 @@
-# amenterprises
-AM ENTERPRISES OFFICIAL WEBSITE
